@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @douboNg aka Nguyễn Đại Dương
-- 👀 I'm into music, new things, challenges and travel with friends
+- 👋 Hi, I’m @douboNg
+- 👀 I'm into music, new things, challenges and travelling with friends
 - 🌱 Currently trying to be better day by day (especially IT and English)
 - 💞️ I’m willing to get along with everyone
 - 📫 Get to know me more at: https://www.facebook.com/oceanlalaa 
