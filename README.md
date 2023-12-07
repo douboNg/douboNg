@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @douboNg
-- 👀 I'm into music, new things, challenges and travelling with friends
-- 🌱 Currently trying to be better day by day (especially IT and English)
 - 💞️ I’m willing to get along with everyone
 
 
