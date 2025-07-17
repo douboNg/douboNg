@@ -1,9 +1,9 @@
-### 👋 Hello, I'm Nguyễn Đại Dương
+### 👋 Hello, I'm Duong
 
-#### Roles
+#### I'm a
 - 🎓 Graduate student in Information Systems at [University of Information Technology](https://www.uit.edu.vn/) (VNUHCM - UIT)
 - 🧩 Business Analyst at [Kyanon Digital](https://kyanon.digital/)  
-- ✨ Passionate about innovation, technology, and continuous learning
+- ✨ Passionate individual about innovation, technology, and continuous learning
 
 
 <!---
