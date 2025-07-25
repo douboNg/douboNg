@@ -3,7 +3,7 @@
 #### I'm a
 - 🎓 Graduate student in Information Systems at [University of Information Technology](https://www.uit.edu.vn/) (VNUHCM - UIT)
 - 🧩 Ex-Business Analyst at [Kyanon Digital](https://kyanon.digital/)  
-- ✨ Passionate individual about innovation, technology, and continuous learning
+- ✨ Passionate about innovation, technology, and continuous learning
 
 
 <!---
